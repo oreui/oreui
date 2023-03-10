@@ -7,7 +7,7 @@
 
 - 💬 Ask me about **Data Analysis**
 
-- 📫 How to reach me **bkaoul130@gmail.com**
+- 📫 How to reach me **mathurin1drey@gmail.com**
 
 - ⚡ Fun fact **hello**
 
